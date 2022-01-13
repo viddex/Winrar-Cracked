@@ -9,3 +9,6 @@ You will be able to use the paid version of Winrar.
 
 
 > 3. Open up "WinRaR", And go to the "Help" and then scroll down to the "About WinRar...".
+
+
+![Proof](https://vidde.is-really-hot.wtf/SmBSq5Du)
